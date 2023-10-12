@@ -1,9 +1,14 @@
-👋 Hi, I’m @DorisElli
+                                                               👋 Hi, I’m @DorisElli
 
 
 
 
 
-💞️ I love working with Data
+                                                              💞️ I love working with Data
 
-✉: omughellidoris@gmail.com
+
+
+                                                              
+
+ ✉: omughellidoris@gmail.com
+ 
